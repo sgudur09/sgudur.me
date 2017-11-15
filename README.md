@@ -1,1 +1,0 @@
-# sgudur.me
